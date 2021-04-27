@@ -1,13 +1,15 @@
 # Spiral Up Cut Router Bit
 
-1/4&quot; Spiral Up Cut Bits
+Head over to [Maker Made](http://www.makermade.com/shop) to order.
+
+1/4" Spiral Up Cut Bits
 
 Specifications:
-• Shank: 1/4&quot;
-• Diameter: 1/4&quot;
-• Cut Length: 1&quot;
-• Overall Length: 2-1/2&quot;
-• Flutes: 2
+* Shank: 1/4"
+* Diameter: 1/4"
+* Cut Length: 1"
+* Overall Length: 2-1/2"
+* Flutes: 2
 
 
 What is an Up Cut router bit?
