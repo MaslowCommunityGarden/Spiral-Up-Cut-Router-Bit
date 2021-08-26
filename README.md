@@ -1,6 +1,6 @@
 # Maslow Accessories & Components
 
-![Maslow Original Kit Contents](https://raw.githubusercontent.com/MaslowCommunityGarden/Complete-Ring-Kit/Updates-August-2021/Photo_.PNG)
+![Maslow Original Kit Contents](https://raw.githubusercontent.com/MaslowCommunityGarden/Spiral-Up-Cut-Router-Bit/Updates-August-2021/Accessories_Components.jpg)
 
 Find parts & accessories for your Maslow or M2! 
 
